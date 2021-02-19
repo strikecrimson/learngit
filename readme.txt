@@ -1,2 +1,2 @@
-The knight appears on you side
+rising rythming riful
 you have no fear and flame is bright
