@@ -1,5 +1,3 @@
-The knight appears when you side
-you have no fear and flame is bright
-ride on dragon fight
-drgonic knight
-总而言之 超弩级的强大
+聚集的群星集合为一体时
+新的光芒将会照亮未来
+成为光明照耀的道路吧
